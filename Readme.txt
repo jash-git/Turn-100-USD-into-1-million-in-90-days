@@ -1,6 +1,6 @@
 90天把100塊變成100萬 《富豪谷底求翻身》
 
-相關正統介紹: https://www.discoverychannel.com.tw/page.php?id=86 [富翁谷底求翻身- Discovery 頻道]
+相關介紹: https://www.discoverychannel.com.tw/page.php?id=86 [富翁谷底求翻身- Discovery 頻道]
 
 影片列表:
 三個月內把100元變成100萬？有錢人的成功到底是運氣好還是真有實力？這部實境秀告訴你！新頻道上架啦！想看Psyman炸廚房快來｜富豪谷底求翻身(上)｜PSYMAN塞門｜任性系列之一
